@@ -1,9 +1,10 @@
 ## Morningstar, the illumination of Wisdom.
 <p align="center">
-  <img src="https://i.ytimg.com/vi/JB582T3OyxI/maxresdefault.jpg" />
+  <img src="https://i.imgur.com/aLk1fyG.jpeg<img width="2048" />
+
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=LMD&color=687CD2"> 
+    <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=Rebirths&color=a6e3f6"> 
 
 ## BYI
 * Try not to cover
