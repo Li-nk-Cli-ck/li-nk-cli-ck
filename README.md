@@ -1,4 +1,4 @@
-## Morningstar, the illumination of Wisdom.
+##  "Lord Drinker of the Moon."
 <p align="center">
   <img src="https://i.imgur.com/aLk1fyG.jpeg<img width="2048" />
 
