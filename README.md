@@ -1,4 +1,4 @@
-##  "Lord Drinker of the Moon."
+##  ✩ "Lord Drinker of the Moon."
 
 <p align="center" width="100%">
     <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=Rebirths&color=a6e3f6"> 
@@ -26,12 +26,12 @@
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 * **I Hide Freely** it's usually 15min to 24hrs.
 
-## **KIN LIST**
+## ✩ **KIN LIST**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * Zhongli
 * Dan Feng
 
-## Display Status in game
+## ✩ Display Status in game
 <p align="center">
   <img src="https://img.shields.io/badge/Online-〇-4b9953?style=flat-square&logo=psychology&logoColor=white" />
 </p>
