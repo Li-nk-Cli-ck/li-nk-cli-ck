@@ -1,13 +1,13 @@
-##  ✩ "Lord Drinker of the Moon."
+##  ✩ "Take back all my regrets-"
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=Rebirths&color=a6e3f6"> 
+    <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=Resets&color=262635"> 
 </p>
 
 <p align="center">
-  <img src="https://i.imgur.com/aLk1fyG.jpeg<img width="2048" />
+  <img src= "https://github.com/user-attachments/assets/49c78b8e-7124-4e12-ab8b-47e6e8243acf" />
 
-> “I am not him”
+> “And camouflage it like your silhouette.”
 </p>
 
 <p align="center">
@@ -26,10 +26,25 @@
 *  **If I'm doing something and it bothers you. Tell me. I can't read minds or body language over a device. I wish I could.**
 * **I Hide Freely** it's usually 15min to 24hrs.
 
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+  <img src="https://static.wikia.nocookie.net/shipping/images/a/a4/Sgdlr_shorts_ep_4.png/revision/latest?cb=20220417212041" />
+
 ## ✩ **KIN LIST**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * Zhongli
 * Dan Feng
+
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/961ff58d-5876-4214-b76e-128b963b1ef6" />
+
 
 ## ✩ Display Status in game
 <p align="center">
