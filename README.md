@@ -8,6 +8,11 @@
   <img src= "https://github.com/user-attachments/assets/a4e477c9-5d8b-4218-8837-6cb3978cc0a8" />
 
 > “And camouflage it like your silhouette.”
+
+<p align=“center”>
+    
+    Lu Guang of Pony Town
+    
 </p>
 
 <p align="center">
