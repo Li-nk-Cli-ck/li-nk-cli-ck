@@ -42,7 +42,7 @@
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
 * I also kin Zhongli and Dan Feng
 * **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
-* **Ships that I’m okay to interact with:** ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), other ships, whisper if unsure (directed at friends and strangers).
+* **Ships that I’m okay to interact with:** ArdaminA (Endfield), Chili (Genshin) (Friends only), Haikaveh (Genshin) (Strictly Friends only), Caeheng (HSR), Renfeng (HSR) (Friends only), ShiGuang (Link Click), JaeXiao (Link Click) other ships, whisper if unsure (directed at friends and strangers).
 
 <p align="center">
 ⋆｡°✩
