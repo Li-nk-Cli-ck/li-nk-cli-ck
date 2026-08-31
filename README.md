@@ -5,7 +5,7 @@
 </p>
 
 <p align="center">
-  <img src= "https://github.com/user-attachments/assets/49c78b8e-7124-4e12-ab8b-47e6e8243acf" />
+  <img src= "https://github.com/user-attachments/assets/a4e477c9-5d8b-4218-8837-6cb3978cc0a8" />
 
 > “And camouflage it like your silhouette.”
 </p>
@@ -33,10 +33,11 @@
 <p align="center">
   <img src="https://static.wikia.nocookie.net/shipping/images/a/a4/Sgdlr_shorts_ep_4.png/revision/latest?cb=20220417212041" />
 
-## ✩ **KIN LIST**
+## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
-* Zhongli
-* Dan Feng
+* I also kin Zhongli and Dan Feng
+* **Yume Characters:** Vedrfolnir (Genshin Impact) with my OC Song Feng. Tragodia (Arknights) or Logos (Arknights) with my OC Perish.
+* **Ships that I’m okay to interact with:** ArdaminA, Chili (Friends only), Haikaveh (Strictly Friends only), Caeheng, Renfeng (Friends only), other ships, whisper if unsure (directed at friends and strangers).
 
 <p align="center">
 ⋆｡°✩
@@ -45,6 +46,21 @@
 <p align="center">
   <img src="https://github.com/user-attachments/assets/961ff58d-5876-4214-b76e-128b963b1ef6" />
 
+## ✩ Media Interests
+* **ARKNIGHTS and Endfield**
+* ORV
+* *Link Click*
+* Granblue Fantasy
+* Genshin
+* HSR (Warning: Stopped after M. Blade Released)
+* MDZS and TGCF
+
+<p align="center">
+⋆｡°✩
+</p>
+
+<p align="center">
+  <img src="https://github.com/user-attachments/assets/6360dab6-593f-49b1-9802-c7af6e72de53" />
 
 ## ✩ Display Status in game
 <p align="center">
