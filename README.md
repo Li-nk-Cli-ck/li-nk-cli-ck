@@ -1,7 +1,7 @@
 ##  ✩ "Take back all my regrets-"
 
 <p align="center" width="100%">
-    <img src="https://github.com/user-attachments/assets/e14a1973-732f-410b-81f9-fc94af658ca5" />
+    <img src="https://komarev.com/ghpvc/?username=MIKALJI&style=for-the-badge&label=˚♡˚₊‧⁺˖&color=262635">
 
 </p>
 
