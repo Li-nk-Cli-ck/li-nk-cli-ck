@@ -53,7 +53,8 @@
 </p>
 
 <p align="center">
-  <img src=“https://github.com/user-attachments/assets/763fa095-e5da-4cb0-a2d5-a16bb1916487" />
+  <img src="https://github.com/user-attachments/assets/c5d9d8a3-cd26-4204-949b-62a3bc16ffee" />
+</p>
 
 
 ## ✩ Media Interests
