@@ -6,14 +6,14 @@
 </p>
 
 <p align="center">
-  <img src= "" />
+  <img src="https://github.com/user-attachments/assets/c65cf413-bce3-43d4-9457-ce72a419a417" />
 
 
 > “And camouflage it like your silhouette.”
 
 <p align=“center”>
     
-    Lu Guang of Pony Town
+    Liu Xiao of Pony Town
     
 </p>
 
@@ -38,7 +38,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/a9f75a52-6fe1-443b-ba2a-d23f99ac889e" />
+  <img src="https://github.com/user-attachments/assets/0a149700-f567-4594-8de6-946c210f7bf6" />
 
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
@@ -53,7 +53,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/078ef568-11aa-4cc3-9da0-0971f13a4142" />
+  <img src=“https://github.com/user-attachments/assets/763fa095-e5da-4cb0-a2d5-a16bb1916487" />
 
 
 ## ✩ Media Interests
@@ -70,7 +70,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/06927829-07fa-46d7-be94-de063851dae7" />
+  <img src="https://github.com/user-attachments/assets/f3894952-dc8c-40b9-b317-68a36d2e1e6c" />
 
 ## ✩ Display Status in game
 <p align="center">
