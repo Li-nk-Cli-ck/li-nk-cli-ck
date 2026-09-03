@@ -1,11 +1,13 @@
 ##  ✩ "Take back all my regrets-"
 
 <p align="center" width="100%">
-    <img src="https://komarev.com/ghpvc/?username=Mikalji&style=for-the-badge&label=Resets&color=262635"> 
+    <img src="https://github.com/user-attachments/assets/e14a1973-732f-410b-81f9-fc94af658ca5" />
+
 </p>
 
 <p align="center">
-  <img src= "https://github.com/user-attachments/assets/a4e477c9-5d8b-4218-8837-6cb3978cc0a8" />
+  <img src= "" />
+
 
 > “And camouflage it like your silhouette.”
 
@@ -36,7 +38,7 @@
 </p>
 
 <p align="center">
-  <img src="https://static.wikia.nocookie.net/shipping/images/a/a4/Sgdlr_shorts_ep_4.png/revision/latest?cb=20220417212041" />
+  <img src="https://github.com/user-attachments/assets/a9f75a52-6fe1-443b-ba2a-d23f99ac889e" />
 
 ## ✩ **Character LIST, ect.**
 * I heavily Kin Nico di Angelo, Dan Heng and Ardashir
@@ -51,7 +53,8 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/961ff58d-5876-4214-b76e-128b963b1ef6" />
+  <img src="https://github.com/user-attachments/assets/078ef568-11aa-4cc3-9da0-0971f13a4142" />
+
 
 ## ✩ Media Interests
 * **ARKNIGHTS and Endfield**
@@ -67,7 +70,7 @@
 </p>
 
 <p align="center">
-  <img src="https://github.com/user-attachments/assets/6360dab6-593f-49b1-9802-c7af6e72de53" />
+  <img src="https://github.com/user-attachments/assets/06927829-07fa-46d7-be94-de063851dae7" />
 
 ## ✩ Display Status in game
 <p align="center">
